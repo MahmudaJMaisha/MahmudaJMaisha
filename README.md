@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MahmudaJMaisha
+- 👋 Hi, I’m Mahmuda Jannat Maisha
 - 👀 I’m interested in travelling and baking.
 - 🌱 I’m currently studying BSc Mathematics at QMUL!
 - 😄 Pronouns: she/her
